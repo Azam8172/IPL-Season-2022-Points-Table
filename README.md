@@ -1,0 +1,1 @@
+# IPL-Season-2022-Points-Table
